@@ -47,7 +47,7 @@ Meu foco é atuar na área de **Análise de Dados / Business Intelligence**, apl
 
 ## 📬 Contato e Redes
 *   📧 **Email:** [jeimisson.leao@gmail.com](mailto:jeimisson.leao@gmail.com)
-*   💼 **LinkedIn:** [Seu Link do LinkedIn aqui]
+*   💼 **LinkedIn:** [https://www.linkedin.com/in/jeimisson-junior-le%C3%A3o-do-carmo-550219301]
 *   📍 **Localização:** São Luís - MA
 
 ---
